@@ -1,4 +1,4 @@
-# 
+# Get the ultimate degen coin sniper bot with automatic degen coin sniper bot | front-running + volume-spike-detection. Featuring front-running and volume-spike-detection, it's the
 
 
 
